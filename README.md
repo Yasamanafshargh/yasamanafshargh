@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on a video comparing project <br>👯 I’m looking to collaborate on creative projects and solutions<br>
+passionate<br>
 
 
 ## 🌐 Socials:
